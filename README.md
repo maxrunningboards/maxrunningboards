@@ -45,4 +45,10 @@ We work with automotive businesses seeking reliable product sourcing, custom bra
 
 ## Contact
 
-For wholesale inquiries, distribution opportunities, private-label projects, and
+For wholesale inquiries, distribution opportunities, private-label projects, and product development, please contact us or visit our official website.
+
+- **Website:** [MAX Running Boards](https://maxrunningboards.com/)
+- **Email:** [maxrunningboards@gmail.com](mailto:maxrunningboards@gmail.com)
+- **WhatsApp / WeChat:** +86 198 5446 7650
+
+MAX Running Boards — Electric Side Steps for Trucks and SUVs.
